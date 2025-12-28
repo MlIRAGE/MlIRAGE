@@ -4,4 +4,5 @@
 
 revamping,,, take my strawpage [hihi](https://tomyheartscontent.straw.page)
 
-$\color{#1d1d1b}{H~ }$ $\color{#30302e}{E~ }$ $\color{#434341}{L~ }$ $\color{#565654}{L~ }$ $\color{#686867}{O~ }$ $\color{#7b7b7a}{,~ }$ ![](https://komarev.com/ghpvc/?username=pretty-Iittle-things&color=000000&style=flat&label=visitor)
+$\color{#1d1d1b}{H~ }$ $\color{#30302e}{E~ }$ $\color{#434341}{L~ }$ $\color{#565654}{L~ }$ $\color{#686867}{O~ }$ $\color{#7b7b7a}{,~ }$ ![](https://komarev.com/ghpvc/?username=pretty-Iittle-things&color=000000&style=flat&label=visitor(s)) <img width="35" height="32" alt="Untitled1175_20251224232434" src="https://github.com/user-attachments/assets/6b4aadf5-3cd3-4071-921c-bb1821e52e70" />
+
