@@ -1,8 +1,9 @@
+![](https://komarev.com/ghpvc/?username=pretty-Iittle-things&color=000000&style=flat&label=visitor(s))
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Barlow+Condensed&duration=1500&pause=1000&color=FFFFFF&center=true&vCenter=true&width=435&lines=tired%2C+it+shows;you+hope+nobody+knows;.+.+.;but+you'll+go%2C+lest+your+facade+become+exposed!)](https://git.io/typing-svg)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Syne&size=37&duration=2000&pause=600&color=909090&center=true&vCenter=true&width=950&height=56&lines=in+half+broken+japanese%2C+i+wrote+to+you;%E6%84%9B%E3%81%97%E3%81%A6%E3%82%8B+oh+%E6%84%9B%E3%81%97%E3%81%A6%E3%82%8B;for+most+of+my+life%2C+ive+thought+with+my+heart+but+my+brain;%E5%BF%83%E3%82%92%E6%84%9B%E3%81%97%E3%81%A6%E3%82%8B+)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Barlow+Condensed&duration=1500&pause=1000&color=9E9E9E&center=true&vCenter=true&width=435&lines=cried%2C+your+woes;you'll+pray+nobody+knows;.+.+.;yet+you'll+go%2C+lest+your+phony+act's+exposed!)](https://git.io/typing-svg)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Barlow+Condensed&duration=1500&pause=1000&color=4D4D4DFF&center=true&vCenter=true&width=435&lines=numb%2C+eyes+closed;you+want+someone+to+know;.+.+.;but+keep+dancing%2C+let+the+act+consume+you+whole!)](https://git.io/typing-svg)
 
 revamping,,, take my strawpage [hihi](https://tomyheartscontent.straw.page)
-
-$\color{#1d1d1b}{H~ }$ $\color{#30302e}{E~ }$ $\color{#434341}{L~ }$ $\color{#565654}{L~ }$ $\color{#686867}{O~ }$ $\color{#7b7b7a}{,~ }$ ![](https://komarev.com/ghpvc/?username=pretty-Iittle-things&color=000000&style=flat&label=visitor(s)) <img width="35" height="32" alt="Untitled1175_20251224232434" src="https://github.com/user-attachments/assets/6b4aadf5-3cd3-4071-921c-bb1821e52e70" />
-
