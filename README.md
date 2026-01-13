@@ -6,4 +6,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Barlow+Condensed&duration=1500&pause=1000&color=4D4D4DFF&center=true&vCenter=true&width=435&lines=numb%2C+eyes+closed;you+want+someone+to+know;.+.+.;but+keep+dancing%2C+let+the+act+consume+you+whole!)](https://git.io/typing-svg)
 
+![ezgif-1361dac9557ccdfc](https://github.com/user-attachments/assets/54bf7333-17fd-4c09-bffa-75d688bc6472)
+
+
 revamping,,, take my strawpage [hihi](https://tomyheartscontent.straw.page)
