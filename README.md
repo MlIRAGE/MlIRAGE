@@ -11,4 +11,5 @@ ${\textsf{\color{#444444}thank u} }$ [alie](https://github.com/PLCSsourvodka) ${
 
 ${\textsf{\color{#72724E}really big fat wip dont kill me please 𝒕𝒉𝒂𝒏𝒌 𝒚𝒐𝒚𝒖} }$
 
-[𝙸](https://tomyheartscontent.straw.page)⠀⠀⠀⠀ ⠀[𝙸𝙸](https://joylylbug.atabook.org/) 
+[𝙸](https://tomyheartscontent.straw.page)⠀⠀⠀⠀ ⠀[𝙸𝙸](https://joylylbug.atabook.org/)
+
