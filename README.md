@@ -1,4 +1,17 @@
 <div align="center">
+
+<img width="1280" height="1280" alt="Untitled1228_20260525212310" src="https://github.com/user-attachments/assets/38bbb44d-7b63-440f-a569-0e06bcba93d3" />
+
+
+
+
+
+
+
+
+
+
+
   
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Barlow+Condensed&size=25&pause=10&color=72724E&center=true&vCenter=true&width=435&lines=thats+all+i+will+ever+be+;but+im+happy+knowing+that+i+will+be+okay;maybe+someday+something+will+change)](https://git.io/typing-svg)
 
