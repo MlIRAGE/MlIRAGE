@@ -9,6 +9,5 @@
 ${\textsf{\color{#8EABE4}really big fat wip dont kill me please 𝒕𝒉𝒂𝒏𝒌 𝒚𝒐𝒚𝒖} }$
 
 [<img width="280" height="370" alt="https://tomyheartscontent.straw.page" src="Untitled1227_20260526125241.png" />](https://tomyheartscontent.straw.page) 
-
 [<img width="280" height="370" alt="https://joylylbug.atabook.org/" src="Untitled1227_20260526124535.png" />](
 https://joylylbug.atabook.org/) 
