@@ -8,6 +8,6 @@
 
 ${\textsf{\color{#8EABE4}really big fat wip dont kill me please 𝒕𝒉𝒂𝒏𝒌 𝒚𝒐𝒚𝒖} }$
 
-[<img width="280" height="370" alt="https://tomyheartscontent.straw.page" src="Untitled1227_20260526125241.png" />](https://tomyheartscontent.straw.page) 
-[<img width="280" height="370" alt="https://joylylbug.atabook.org/" src="Untitled1227_20260526124535.png" />](
+[<img width="280" height="370" alt="https://tomyheartscontent.straw.page" src="IMG_20260526_142517.png" />](https://tomyheartscontent.straw.page) 
+[<img width="280" height="370" alt="https://joylylbug.atabook.org/" src="IMG_20260526_142554.png" />](
 https://joylylbug.atabook.org/) 
